@@ -1,0 +1,2 @@
+# KAZAKK
+LAZA\A
